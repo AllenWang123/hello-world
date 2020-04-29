@@ -2,4 +2,4 @@
 
 Hi Boys,
 
-Enjoy the lift everyday, tyr your best to play, study and sleep.
+Enjoy the life everyday, try your best to play, study and sleep.
